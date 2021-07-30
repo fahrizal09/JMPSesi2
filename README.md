@@ -1,4 +1,4 @@
 # JMPSesi2
-Satya Rivangga
+Fahrizal Azi Ferdiansyah
 
 Nomor Registrasi: 02116509151-2
